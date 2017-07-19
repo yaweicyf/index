@@ -10,12 +10,12 @@
 
 ####  [ÐÂÎÅÊ×Ò³](https://yaweicyf.github.io/game333/newsindex.html)
 
-####  [ÐÂÎÅÄÚÈÝÒ³](https://yaweicyf.github/game333/newscontent.html)
+####  [ÐÂÎÅÄÚÈÝÒ³](https://yaweicyf.github.io/game333/newscontent.html)
 
-####  [²¹¶¡Ê×Ò³](https://yaweicyf.github/game333/patchindex.html])
+####  [²¹¶¡Ê×Ò³](https://yaweicyf.github.io/game333/patchindex.html])
 
-####  [²¹¶¡ÄÚÈÝÒ³](https://yaweicyf.github/game333/patchcontent.html)
+####  [²¹¶¡ÄÚÈÝÒ³](https://yaweicyf.github.io/game333/patchcontent.html)
 
-####  [²¹¶¡ÁÐ±íÒ³](https://yaweicyf.github/game333/patchlist.html)
+####  [²¹¶¡ÁÐ±íÒ³](https://yaweicyf.github.io/game333/patchlist.html)
 
-####  [¹¥ÂÔ¾ÛºÏÒ³](https://yaweicyf.github/game333/glt.html)
+####  [¹¥ÂÔ¾ÛºÏÒ³](https://yaweicyf.github.io/game333/glt.html)
